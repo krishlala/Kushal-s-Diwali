@@ -1,1 +1,1 @@
-# Kushal-s-Diwali
+# Kushals-Diwali
